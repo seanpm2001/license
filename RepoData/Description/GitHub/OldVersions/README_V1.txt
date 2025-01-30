@@ -1,0 +1,1 @@
+↪️💳️↩️ A redirect to Licenses
